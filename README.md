@@ -1,5 +1,5 @@
-### 💫 About Me:
-Hey There..👋<br>I'm Harshita... A Tech Explorer...<br>🚀 Curious Developer and yes little interest in space technology<br>🖥️ Constantly learning and expanding my skill set<br>🌟 Open-source enthusiast<br>💫 Exploring new technologies and embracing challenges to fuel personal growth. <br> ✨ Let's turn ideas into reality! 💡
+### Hey There..👋
+<br>I'm Harshita... A Tech Explorer...<br>🚀 Curious Developer and yes little interest in space technology<br>🖥️ Constantly learning and expanding my skill set<br>🌟 Open-source enthusiast<br>💫 Exploring new technologies and embracing challenges to fuel personal growth. <br> ✨ Let's turn ideas into reality! 💡
 
 
 ### 🌐 Socials:
